@@ -1,1 +1,1 @@
-👋 Hi
+👋 Be kind, run hills
